@@ -1,1 +1,1 @@
-# -lesund-Politistajon
+# -Ålesund-Politistajon- skinna til norsk
